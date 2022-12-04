@@ -1,3 +1,4 @@
+![headshot](halloween.jpg)
 # A little insight into me
 Be here now
 
