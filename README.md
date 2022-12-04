@@ -7,3 +7,6 @@ Create work environments where others can do their best work joyfully!
 
 ## My Hobbies
 Meditation, self-study, help others
+
+## Fav Book
+Gentleman from Moscow
